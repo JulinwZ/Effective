@@ -1,0 +1,2 @@
+![Фото1](https://d1.skrinshoter.ru/s/081123/9y6jSZ2p.png?view=1&name=%D0%A1%D0%BA%D1%80%D0%B8%D0%BD%D1%88%D0%BE%D1%82-08-11-2023%2013:45:23.png)
+![Фото2](https://skrinshoter.ru/s/081123/4dWS7f6B.png?download=1&name=%D0%A1%D0%BA%D1%80%D0%B8%D0%BD%D1%88%D0%BE%D1%82-08-11-2023%2013:46:59.png)
